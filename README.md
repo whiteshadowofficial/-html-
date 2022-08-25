@@ -81,8 +81,8 @@ Stefanie-WhatsApp-Bot-MD Public release 🎓
 
 
 
- [Video link...👇] (https://youtu.be/WezRH3ahExc)
+ [Video link...👇](https://youtu.be/WezRH3ahExc)
 
-[Support Group link...👇] (https://chat.whatsapp.com/KlpSnFrspoaEu2kRrjx8v4)
+[Support Group link...👇](https://chat.whatsapp.com/KlpSnFrspoaEu2kRrjx8v4)
 
 ( මේක ශෙයා කරන්න..)
